@@ -39,7 +39,7 @@ Download my CV [here](./assets/cv/Erick%20Nderitu%202025%20CV.pdf)
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/erick-nderitu/)
 - 💻 [GitHub](https://github.com/ErickErigit)
-- 📧 Email: [ericknderitu254@gmail.com](mailto:ericknderitu254@gmail.com)
+- 📧 Email: [nderituerick35@gmail.com](mailto:nderituerick35@gmail.com)
 
 ---
 
